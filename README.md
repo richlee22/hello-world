@@ -17,3 +17,7 @@ Ran away with a man,
 And as for the bucket, Nantucket.
 
 This is Richard.
+I am the worst at coding.
+But am trying.
+
+My girlfriend is Kristy.
